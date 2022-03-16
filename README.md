@@ -1,0 +1,1 @@
+# novririzqullah_stmikamikriau
